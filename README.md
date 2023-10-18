@@ -1,1 +1,0 @@
-# Mice_Protein_Project
